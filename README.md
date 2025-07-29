@@ -1,2 +1,2 @@
-# resources
-Resoures
+# resoures
+No peeking!
